@@ -1,0 +1,1 @@
+# apaguei_sua_avaliacao_kkk
